@@ -1,2 +1,0 @@
-# hipnoterapi
-ruang tenang nirvana
